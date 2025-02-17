@@ -13,7 +13,6 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/KanwalFatima188/KanwalFatima188](https://github.com/KanwalFatima188/KanwalFatima188)
 
-- 📫 How to reach me **hafizakanwal0310222@gmail.com**
 
 - ⚡ Fun fact **I am Funny😂**
 
